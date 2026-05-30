@@ -7,3 +7,5 @@ i love all my friends. every single one of them. even if we dont talk often, i s
 nvm im not joyous anyways i HAAAATTTTEEEE HAVING ACNE. ITS HELL. I LOOK SO FUCKING CHOPPED IMTIRED OF GOING INTO THE BATHROOM JUST TO PICK AT MY FACE KILLLLL MEEEEEEEEEEE
 
 idsmile is so PEAK ohmyhod i deadass cried while listening to that song its too STRONGGGG 
+
+dude it worries me so much when 1 of my close friends goes quiet/dry or like. stops talking completely while we're interacting like☹️☹️☹️it makes me think IM the problem......ik its probably not becuz of me but most of the time i think it is,,,,whatever maybe imjust a loser ok
