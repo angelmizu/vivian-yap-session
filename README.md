@@ -1,4 +1,4 @@
-uhm hi!!!!! my invisible audience!!!!!!!!!!! tgis is a respotory thing that im just gonna yap and rant in,,,nobodys gonna look in it anyway👀👀👀👀👀ok (anything bbut finishing those lovemail confessions ok)
+uhm hi!!!!! my invisible audience!!!!!!!!!!! tgis is a respotory thing that im just gonna yap and rant in,,,nobodys gonna look in it anyway👀👀👀👀👀ok
 
 <img width="736" height="245" alt="1000025620" src="https://github.com/user-attachments/assets/3bbd993a-2166-4902-b91b-bad7fd2e3e1c" />
 
@@ -9,3 +9,5 @@ nvm im not joyous anyways i HAAAATTTTEEEE HAVING ACNE. ITS HELL. I LOOK SO FUCKI
 idsmile is so PEAK ohmyhod i deadass cried while listening to that song its too STRONGGGG 
 
 dude it worries me so much when 1 of my close friends goes quiet/dry or like. stops talking completely while we're interacting like☹️☹️☹️it makes me think IM the problem......ik its probably not becuz of me but most of the time i think it is,,,,whatever maybe imjust a loser ok
+
+this might sound petty as fuck bbut i hate when random people on pt that i do NOT know randomly walk up to make and try to join my conversation like GO away bru who tf are you
