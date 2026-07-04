@@ -15,3 +15,6 @@ this might sound petty as fuck bbut i hate when random people on pt that i do NO
 deadass how it feels to type literally anything here becuz i know nobody looks at ts
 
 <img width="1500" height="1101" alt="1000026198" src="https://github.com/user-attachments/assets/690e6586-660a-4541-b7e3-4e2c99cf2b47" />
+
+*THIS IS WORDED HORRIBLY* ok anyways call me a loser all you want but i☹️☹️☹️ get really sad when somebody that im really close to starts to like grow distant/not talk to me as often,, especially if they talk to other people instead of me,, like i get it, you don't have to talk to me EVERY single day and u gotta talk to other friends and stuff but like,, if we start to grow REALLY distant and like, not talk for over a week then it makes me sad because like,, what happened☹️ we used to be so close and then we just,, stopped talking. and then my fucking stupid ass overthinks about it for like the entire day like DUDE im loser
+also this is semi-targetted(??) iguess
